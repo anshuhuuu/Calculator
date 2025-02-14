@@ -4,4 +4,4 @@
 
 
 
-Team Members : Anshu Pradhanang and Saloni Pradhan
+Team Members : Anshu Pradhanang , Saloni Pradhan and Khusi Gurung
